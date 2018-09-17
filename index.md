@@ -2,6 +2,7 @@
 
 This is **all** *flavor text!* I have nothing to write about at the moment.
 
+### Quotes to Live By
 As Ice Cube once said:
 
 > I make a mean cup of coffee,
