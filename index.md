@@ -8,4 +8,4 @@ As Ice Cube once said:
 > if you give me the right
 > ingredients.
 
-![Ice Cube](https://goo.gl/images/1oU2mB)
+![Ice Cube](https://sugarfactory.com/wp-content/uploads/2016/10/Ice-Cube-1-1-600x600.jpg)
